@@ -20,4 +20,4 @@ My research interests include:
 
 ## Contact Me
 
-I'm always open to collaboration and discussion. Feel free to contact me on my email: wasif.shaqil@hs.uni-hamburg.de
+I'm always open to collaboration and discussion.
